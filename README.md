@@ -8,7 +8,7 @@
 
 <p align="center">
 
-![](https://files.catbox.moe/rr0r9f.jpg)  
+![](https://files.catbox.moe/3ifomb.jpg)  
 
  [rentry](https://rentry.co/bonehunter) [prns.cc](https://pronouns.cc/@woodic) ‏ 
 
