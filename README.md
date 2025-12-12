@@ -12,7 +12,7 @@
 ![](https://files.catbox.moe/3ifomb.jpg)  
 
 [COLOR MY TREE!!](https://colormytree.me/2025/01HHX8WXB79RZR4TK81W4X4XN5) 
- [rentry](https://rentry.co/bonehunter) , [prns.cc](https://pronouns.cc/@woodic) ‏ 
+ [rentry](https://rentry.co/rottenwood) , [prns.cc](https://pronouns.cc/@woodic) ‏ 
 
 <p align="center">
 
