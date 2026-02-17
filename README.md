@@ -12,7 +12,7 @@
 ![](https://files.catbox.moe/4hpsjz.png) 
 
 [guns.lol](https://guns.lol/forestsoul) , 
- [rentry](https://rentry.co/cocoaforlunch) , [prns.cc](https://pronouns.cc/@woodic) ‏ 
+ [rentry](https://rentry.co/hildafolk) , [prns.cc](https://pronouns.cc/@woodic) ‏ 
 
 <p align="center">
 
