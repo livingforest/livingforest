@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=livingforest&label=bug+collection&color=B15934"> </a>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=sepulchres&label=bug+collection&color=B15934"> </a>
 
 <p align="center">  ” someday i will toss all your         presents, and bury the letters left unsent ” ‏
 </div>
@@ -9,7 +9,7 @@
 <p align="center">
  
 
-![](https://files.catbox.moe/t27vb9.png) 
+![](https://files.catbox.moe/dgpgyz.png) 
 
 [guns.lol](https://guns.lol/forestsoul) , 
  [rentry](https://rentry.co/cocoaforlunch) , [prns.cc](https://pronouns.cc/@woodic) ‏ 
