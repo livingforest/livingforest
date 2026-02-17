@@ -9,7 +9,7 @@
 <p align="center">
  
 
-![](https://files.catbox.moe/t42jfo.png)  
+![](https://files.catbox.moe/e1shw3.png)  
 
 [guns.lol](https://guns.lol/forestsoul) , 
  [rentry](https://rentry.co/cocoaforlunch) , [prns.cc](https://pronouns.cc/@woodic) ‏ 
