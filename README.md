@@ -11,7 +11,7 @@
 
 ![](https://files.catbox.moe/4hpsjz.png) 
 
-[guns.lol](https://guns.lol/forestsoul) , 
+[guns.lol](https://guns.lol/hildafolk) , 
  [rentry](https://rentry.co/hildafolk) , [prns.cc](https://pronouns.cc/@woodic) ‏ 
 
 <p align="center">
