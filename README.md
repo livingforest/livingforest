@@ -14,6 +14,8 @@
 [guns.lol](https://guns.lol/hildafolk) , 
  [rentry](https://rentry.co/hildafolk) , [prns.cc](https://pronouns.cc/@woodic) ‏ 
 
+[my hilda urls collection on rentry!](https://rentry.co/hildabiggestfan) 
+
 <p align="center">
 
 
