@@ -1,7 +1,6 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=livingforest&label=bug+collection&color=6F3A31"> </a>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=livingforest&label=bug+collection&color=6F3A31"> <a/>
 
-<p align="center">  ” someday i will toss all your         presents, and bury the letters left unsent ” ‏
-</div>
+<p align="center"> <sub> ” someday i will toss all your         presents, and bury the letters left unsent ” <sub/> <a/>‏
 
 <div align="center">
 <div align="center">
@@ -9,12 +8,12 @@
 <p align="center">
  
 
-![](https://files.catbox.moe/4hpsjz.png) 
+ ![](https://files.catbox.moe/4hpsjz.png) 
 
-[guns.lol](https://guns.lol/hildafolk) , 
- [rentry](https://rentry.co/trolberg) , [prns.cc](https://pronouns.cc/@woodic) ‏ 
 
-[my hilda urls collection on rentry!](https://rentry.co/hildabiggestfan) 
+⠀⠀⠀⠀
+<sub> <sub> this⠀⠀is⠀⠀ a ⠀⠀wip ⠀⠀(⁎˃ᴗ˂⁎) ⠀⠀thank ⠀⠀you <sub/> 
+<sub>⠀⠀ [@kaotown](https://github.com/kaotown) <sub/>
 
 <p align="center">
 
