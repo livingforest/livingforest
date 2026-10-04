@@ -13,7 +13,7 @@
 
 ⠀⠀⠀⠀
 <sub> <sub> this⠀⠀is⠀⠀ a ⠀⠀wip ⠀⠀(⁎˃ᴗ˂⁎) ⠀⠀thank ⠀⠀you <sub/> 
-<sub>⠀⠀ [@kaotown](https://github.com/kaotown) <sub/>
+⠀⠀ [ <sub> <sub> @kaotown <sub/> ](https://github.com/kaotown)⠀[ <sub> <sub> @pt-hall-of-media <sub/> ](https://github.com/pt-hall-of-media) 
 
 <p align="center">
 
