@@ -8,7 +8,7 @@
 <p align="center">
  
 
- ![](https://files.catbox.moe/9riais.png) 
+<sub> ![](https://files.catbox.moe/9riais.png) <sub/>
 
 
 ⠀⠀⠀⠀
