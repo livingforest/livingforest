@@ -7,6 +7,7 @@
 
  hilda⠀⠀(*ᴗ͈ˬᴗ͈)ꕤ⠀⠀![](https://files.catbox.moe/6y1n1b.gif)⠀⠀or⠀⠀norah 
 
+fictive⠀⠀![](https://files.catbox.moe/canmk1.gif)⠀⠀⠀⠀nostalgia victim⠀⠀⠀⠀nature first⠀⠀![](https://files.catbox.moe/3vq8oc.gif) 
 <p align="center">
  
 
