@@ -7,7 +7,9 @@
 
  hilda⠀(*ᴗ͈ˬᴗ͈)ꕤ⠀![](https://files.catbox.moe/6y1n1b.gif)⠀or⠀norah 𐦍༘
 
-fictive⠀![](https://files.catbox.moe/canmk1.gif)⠀nostalgia victim⠀![](https://files.catbox.moe/eu2f7u.gif)⠀nature first⠀![](https://files.catbox.moe/3vq8oc.gif) 
+c*h⠀![](https://files.catbox.moe/canmk1.gif)⠀int always⠀![](https://files.catbox.moe/eu2f7u.gif)⠀<p align="center">
+
+nature first⠀![](https://files.catbox.moe/3vq8oc.gif) 
 <p align="center">
  
 
