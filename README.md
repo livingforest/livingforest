@@ -11,7 +11,7 @@ fictive⠀⠀![](https://files.catbox.moe/canmk1.gif)⠀⠀nostalgia victim⠀�
 <p align="center">
  
 
-<sub> ![](https://files.catbox.moe/9riais.png) <sub/>
+<sub> ![](https://files.catbox.moe/2j0gu1.png) <sub/>
 
 
 ⠀⠀⠀⠀
@@ -21,6 +21,5 @@ fictive⠀⠀![](https://files.catbox.moe/canmk1.gif)⠀⠀nostalgia victim⠀�
 
 <p align="center">
 
-![](https://files.catbox.moe/13albo.jpg) 
 
 
