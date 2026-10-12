@@ -5,7 +5,7 @@
 <div align="center">
 <div align="center">
 
- hilda⠀⠀(*ᴗ͈ˬᴗ͈)ꕤ⠀⠀![](https://files.catbox.moe/6y1n1b.gif)⠀⠀or⠀⠀norah 
+ hilda⠀(*ᴗ͈ˬᴗ͈)ꕤ⠀![](https://files.catbox.moe/6y1n1b.gif)⠀or⠀norah 𐦍༘
 
 fictive⠀⠀![](https://files.catbox.moe/canmk1.gif)⠀⠀⠀⠀nostalgia victim⠀⠀⠀⠀nature first⠀⠀![](https://files.catbox.moe/3vq8oc.gif) 
 <p align="center">
@@ -17,7 +17,7 @@ fictive⠀⠀![](https://files.catbox.moe/canmk1.gif)⠀⠀⠀⠀nostalgia victi
 ⠀⠀⠀⠀
 
 
- thank you : ⠀ [ @kaotown  ](https://github.com/kaotown)⠀[  @pt-hall-of-media  ](https://github.com/pt-hall-of-media)⠀ [ @pt-fashion](https://github.com/pt-fashion) ⠀(=^ェ^=)
+ thank you :  [ @kao  ](https://github.com/kaotown)⠀[  @hall  ](https://github.com/pt-hall-of-media)⠀ [ @fashion](https://github.com/pt-fashion) ⠀(=^ェ^=)
 
 <p align="center">
 
