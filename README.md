@@ -5,6 +5,8 @@
 <div align="center">
 <div align="center">
 
+<sub> hilda (*ᴗ͈ˬᴗ͈)ꕤ ![](https://files.catbox.moe/6y1n1b.gif) or norah <sub/>
+
 <p align="center">
  
 
@@ -17,5 +19,6 @@
 <sub> thank you : <sub>⠀ [ <sub> <sub> @kaotown <sub/> ](https://github.com/kaotown)⠀[ <sub> <sub> @pt-hall-of-media <sub/> ](https://github.com/pt-hall-of-media)⠀ [ <sub> <sub> @pt-fashion](https://github.com/pt-fashion) ⠀(=^ェ^=)
 
 <p align="center">
+
 
 
