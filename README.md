@@ -5,7 +5,7 @@
 <div align="center">
 <div align="center">
 
-<sub> hilda (*ᴗ͈ˬᴗ͈)ꕤ ![](https://files.catbox.moe/6y1n1b.gif) or norah <sub/>
+ hilda⠀⠀(*ᴗ͈ˬᴗ͈)ꕤ⠀⠀⠀![](https://files.catbox.moe/6y1n1b.gif)⠀⠀⠀or⠀⠀norah 
 
 <p align="center">
  
