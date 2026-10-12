@@ -1,6 +1,7 @@
 <p align="center"> <sub> <img src="https://komarev.com/ghpvc/?username=livingforest&label=bug+collection&color=6F3A31"> <sub/> <a/>
 
-<p align="center">  ” someday i will toss all your         presents, and bury the letters left unsent ”  <a/>‏
+<p align="center">  
+ ”someday i will toss all your presents, and bury the letters left unsent” 🎹  ‏
 
 <div align="center">
 <div align="center">
