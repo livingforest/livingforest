@@ -14,7 +14,7 @@
 ⠀⠀⠀⠀
 <sub> <sub> this⠀⠀is⠀⠀ a ⠀⠀wip ⠀⠀(⁎˃ᴗ˂⁎) ⠀ <sub/> 
 
-<sub> thank you (=^ェ^=)⠀<sub>⠀ [ <sub> <sub> @kaotown <sub/> ](https://github.com/kaotown)⠀[ <sub> <sub> @pt-hall-of-media <sub/> ](https://github.com/pt-hall-of-media)⠀⠀⠀ [ <sub> <sub> @pt-fashion](https://github.com/pt-fashion) 
+<sub> thank you : <sub>⠀ [ <sub> <sub> @kaotown <sub/> ](https://github.com/kaotown)⠀[ <sub> <sub> @pt-hall-of-media <sub/> ](https://github.com/pt-hall-of-media)⠀ [ <sub> <sub> @pt-fashion](https://github.com/pt-fashion) ⠀(=^ェ^=)
 
 <p align="center">
 
