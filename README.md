@@ -2,9 +2,8 @@
 ⠀⠀
 <p align="center">  
  ”someday i will toss all your presents, and bury the letters left unsent” ⠀⠀</p> 
- 
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
- <img src="https://files.catbox.moe/2zd0xs.gif" width="400px" height="250"> 
+  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+<p align="center"> <img src="https://files.catbox.moe/2zd0xs.gif" align="center" width="700px" height="450"> 
 <br>
 </div>
 <div align="center">
