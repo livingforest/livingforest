@@ -4,7 +4,7 @@
  ”someday i will toss all your presents, and bury the letters left unsent” 📻
 
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-<p align="center"> <img src="https://files.catbox.moe/2zd0xs.gif" align="center" width="700px" height="450"> 
+<p align="center"> <img src="https://files.catbox.moe/ex177o.gif" align="center" width="700px" height="450"> 
 <br>
 </div>
 <div align="center">
@@ -20,5 +20,5 @@ c*h⠀![](https://files.catbox.moe/coplkj.gif)⠀int always⠀![](https://files.
 nature first⠀![](https://files.catbox.moe/f3ztj6.gif) 
 <p align="center">
 
-<img src="https://files.catbox.moe/ex177o.gif" align="center" width="400px" height="250"> 
+<img src="https://files.catbox.moe/0rzjxu.gif" align="center" width="400px" height="250"> 
 
