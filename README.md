@@ -20,13 +20,7 @@ c*h⠀![](https://files.catbox.moe/canmk1.gif)⠀int always⠀![](https://files.
 nature first⠀![](https://files.catbox.moe/3vq8oc.gif) 
 <p align="center">
  
-
-
-
-⠀⠀⠀⠀
-
-
- thank you : [ @kao  ](https://github.com/kaotown) [  @hall  ](https://github.com/pt-hall-of-media) [ @fashion](https://github.com/pt-fashion) (=^ェ^=)
+thank you : [ @kao  ](https://github.com/kaotown) [  @hall  ](https://github.com/pt-hall-of-media) [ @fashion](https://github.com/pt-fashion) (=^ェ^=)
 
 <p align="center">
 
