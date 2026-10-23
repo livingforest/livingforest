@@ -1,10 +1,10 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=livingforest&label=bug+collection&color=6F3A31">  </p>
 ⠀⠀
 <p align="center">  
- ”someday i will toss all
-
- <p align="center">
- your presents, and bury the letters left unsent” ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/2zd0xs.gif" width="400px" height="250"> 
+ ”someday i will toss all your presents, and bury the letters left unsent” ⠀⠀</p> 
+ 
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+ <img src="https://files.catbox.moe/2zd0xs.gif" width="400px" height="250"> 
 <br>
 </div>
 <div align="center">
