@@ -1,6 +1,6 @@
 <p align="center"> <sub> <img src="https://komarev.com/ghpvc/?username=livingforest&label=bug+collection&color=6F3A31"> <sub/> <a/>
 
-![](https://files.catbox.moe/vvzw9s.png) 
+![](https://files.catbox.moe/9wndvc.gif)
 
 <p align="center">  
  ”someday i will toss all
@@ -29,5 +29,5 @@ nature first⠀![](https://files.catbox.moe/3vq8oc.gif)
 
 <p align="center">
 
-![](https://files.catbox.moe/e23n1p.jpg) 
+![](https://files.catbox.moe/vodsia.gif) 
 
