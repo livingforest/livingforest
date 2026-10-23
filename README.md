@@ -19,10 +19,6 @@ c*h⠀![](https://files.catbox.moe/coplkj.gif)⠀int always⠀![](https://files.
 
 nature first⠀![](https://files.catbox.moe/f3ztj6.gif) 
 <p align="center">
- 
-![](https://files.catbox.moe/tfge7m.gifv) [ @kao  ](https://github.com/kaotown) [  @hall  ](https://github.com/pt-hall-of-media) [ @fashion](https://github.com/pt-fashion) (=^ェ^=)
-
-<p align="center">
 
 <img src="https://files.catbox.moe/ysita1.jpg" align="center" width="400px" height="250"> 
 
