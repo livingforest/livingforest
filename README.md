@@ -1,7 +1,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=livingforest&label=bug+collection&color=6F3A31">  
 
 
-<img src="https://files.catbox.moe/ks1x0i.gif" align="center" width="400px" height="250">
+<img src="https://files.catbox.moe/jvs8wa.gif" align="center" width="400px" height="250">
 
 </div>
 <div align="center">
