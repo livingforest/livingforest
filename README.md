@@ -1,5 +1,10 @@
-<p align="center"> <sub> <img src="https://komarev.com/ghpvc/?username=livingforest&label=bug+collection&color=6F3A31"> <sub/> <a/>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=livingforest&label=bug+collection&color=6F3A31">  
 
+
+<img src="https://files.catbox.moe/ks1x0i.gif" align="center" width="400px" height="250">
+
+</div>
+<div align="center">
 
 <p align="center">  
  ”someday i will toss all
