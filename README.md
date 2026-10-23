@@ -1,7 +1,8 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=livingforest&label=bug+collection&color=6F3A31">  </p>
 ⠀⠀
 <p align="center">  
- ”someday i will toss all your presents, and bury the letters left unsent” ⠀⠀</p> 
+ ”someday i will toss all your presents, and bury the letters left unsent” 📻
+
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <p align="center"> <img src="https://files.catbox.moe/2zd0xs.gif" align="center" width="700px" height="450"> 
 <br>
