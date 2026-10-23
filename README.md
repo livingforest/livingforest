@@ -20,5 +20,5 @@ c*h⠀![](https://files.catbox.moe/coplkj.gif)⠀int always⠀![](https://files.
 nature first⠀![](https://files.catbox.moe/f3ztj6.gif) 
 <p align="center">
 
-<img src="https://files.catbox.moe/ysita1.jpg" align="center" width="400px" height="250"> 
+<img src="https://files.catbox.moe/ex177o.gif" align="center" width="400px" height="250"> 
 
