@@ -13,14 +13,14 @@
 <div align="center">
 <div align="center">
 
- hilda⠀(*ᴗ͈ˬᴗ͈)ꕤ⠀![](https://files.catbox.moe/spzh9d.gif)⠀or⠀norah 𐦍༘
+ hilda⠀(*ᴗ͈ˬᴗ͈)ꕤ⠀![](https://files.catbox.moe/3jh8tj.gif)⠀or⠀norah 𐦍༘
 
-c*h⠀![](https://files.catbox.moe/e5lg0m.gif)⠀int always⠀![](https://files.catbox.moe/eu2f7u.gif)⠀<p align="center">
+c*h⠀![](https://files.catbox.moe/coplkj.gif)⠀int always⠀![](https://files.catbox.moe/37orhv.gif)⠀<p align="center">
 
-nature first⠀![](https://files.catbox.moe/cjix3j.gif) 
+nature first⠀![](https://files.catbox.moe/f3ztj6.gif) 
 <p align="center">
  
-thank you : [ @kao  ](https://github.com/kaotown) [  @hall  ](https://github.com/pt-hall-of-media) [ @fashion](https://github.com/pt-fashion) (=^ェ^=)
+![](https://files.catbox.moe/tfge7m.gifv) [ @kao  ](https://github.com/kaotown) [  @hall  ](https://github.com/pt-hall-of-media) [ @fashion](https://github.com/pt-fashion) (=^ェ^=)
 
 <p align="center">
 
