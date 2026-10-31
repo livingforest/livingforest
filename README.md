@@ -17,5 +17,4 @@ c*h⠀![](https://files.catbox.moe/coplkj.gif)⠀int always⠀![](https://files.
 nature first⠀![](https://files.catbox.moe/f3ztj6.gif) 
 <p align="center">
 
-<img src="https://files.catbox.moe/dosuri.gif" align="center" width="200px" height="200"> 
 
