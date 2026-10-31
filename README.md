@@ -21,7 +21,7 @@ nature first⠀![](https://files.catbox.moe/f3ztj6.gif)
 
  <div align="center">
 <details>
-  <summary>$$\text{my rewards}$$</summary>
+  <summary>my rewards</summary>
   <br>
 
 <div align="center">
