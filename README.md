@@ -1,9 +1,10 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=livingforest&label=bug+collection&color=6F3A31">  </p>
-⠀⠀
-<p align="center">  
- ”someday i will toss all your presents
- <p align="center">
-  and bury the letters left unsent” 📻
+
+<p align="center">
+$\color{FFFFFF}\normalsize{\texttt{" someday i will toss all your presents "}}$ <br>
+<p align="center">
+$\color{FFFFFF}\normalsize{\texttt{" and bury the letters left unsent . " 📻}}$ <br>
+
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <p align="center"> 
  <img src="https://files.catbox.moe/ba8xs7.gif"style="width: 1; height: 1;" />
@@ -16,5 +17,4 @@ c*h⠀![](https://files.catbox.moe/coplkj.gif)⠀int always⠀![](https://files.
 
 nature first⠀![](https://files.catbox.moe/f3ztj6.gif) 
 <p align="center">
-
 
