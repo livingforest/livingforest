@@ -9,7 +9,6 @@
 <img src="https://files.catbox.moe/ba8xs7.gif" alt="OPTIONAL" width="OPTIONAL" height="auto" align="center" />
 
 <div align="center">
-<div align="center">
 
  hilda⠀(*ᴗ͈ˬᴗ͈)ꕤ⠀![](https://files.catbox.moe/3jh8tj.gif)⠀or⠀norah 𐦍༘
 
